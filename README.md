@@ -10,7 +10,7 @@
 
 - 👨‍💻 All of my projects are available at [www.github.com/garethw85](www.github.com/garethw85)
 
-- 📫 How to reach me **tidylad@hotmail.com**
+- 📫 How to reach me **info@garethwilliams.co.za**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/gareth-williams-rsa/](https://www.linkedin.com/in/gareth-williams-rsa/)
 
